@@ -2,7 +2,7 @@
 - 👀 I’m interested in in everything related to Esports
 - 🌱 I’m currently learning Java and JavaScript
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me https://x.com/ToruTaka0
+- 📫 How to reach me
 - 😄 Pronouns: Eddie
 - ⚡ Fun fact: I am a biologist
 
